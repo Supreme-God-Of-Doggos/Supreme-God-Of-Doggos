@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Supreme-God-Of-Doggos
+- 👀 I’m interested in idfk
+- 🌱 I’m currently learning school
+- 💞️ I’m looking to collaborate on minecraft modding (?)
+- 📫 How to reach me discord DoggoThyGod#3880
